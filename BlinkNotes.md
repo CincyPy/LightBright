@@ -2,7 +2,7 @@
 4-6-17  
 [Blink Cincinnati]
 (http://www.blinkcincinnati.com/)
-
+ 
 Initial Meeting for Artists - Opportunity for funding and filling venue spaces
 
 Artists Application for Installations
