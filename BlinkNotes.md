@@ -1,6 +1,6 @@
 # Blink Notes
 4-6-17  
-[Blink Cincinnati]
+Blink Cincinnati
 (http://www.blinkcincinnati.com/)
  
 Initial Meeting for Artists - Opportunity for funding and filling venue spaces
@@ -12,7 +12,7 @@ Submission Deadline 5-1-17
 
 Other opportunities - Parade, private venues - Timing TBD
 
-Links to other world venues:
+Links to other events like Blink Cincinnati for inspiration:
 
 http://www.lights-in-jerusalem.com
 
